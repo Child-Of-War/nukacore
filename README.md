@@ -1,1 +1,1 @@
-Four men in uniform, to carry home my little soldier.
+![](https://files.catbox.moe/ame66v.jpg)
